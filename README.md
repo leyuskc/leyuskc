@@ -1,1 +1,3 @@
 - 👋 Hi, I’m @leyuskc
+- 👉 Follow me at [leyuskckiran1510](https://github.com//leyuskckiran1510) for more recent updates
+- This is a to-be profile of mine. 
